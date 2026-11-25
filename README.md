@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @blackleg-sanji007
-- currently a student @ IIT Kanpur class of 26.
+- currently a student @ IIT Kanpur
 - 
 
 <!---
